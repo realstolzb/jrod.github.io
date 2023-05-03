@@ -1,0 +1,2 @@
+# jrod.github.io
+EDUCATE/ENTERTAIN/INSPIRE
